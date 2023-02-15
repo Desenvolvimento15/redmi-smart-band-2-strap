@@ -1,0 +1,1 @@
+# redmi-smart-band-2-strap
